@@ -1,0 +1,1 @@
+# wealthyman0406.github.io
